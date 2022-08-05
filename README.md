@@ -1,1 +1,0 @@
-# KeanNafisSantang_16521159_STIG_DiarySPARTA
